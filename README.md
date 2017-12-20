@@ -1,2 +1,0 @@
-# lovelyzsn
-to my lover
